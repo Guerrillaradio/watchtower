@@ -1,5 +1,5 @@
               
-<p>but it's a crazy theory, pero igual la nombras
+<p>but it's a crazy theory, but still you mentioned it
                                            
 <p>
 
